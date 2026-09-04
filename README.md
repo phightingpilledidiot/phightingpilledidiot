@@ -1,7 +1,7 @@
 <img width="1000" height="300" alt="tumblr_cf7efa2acae4d4280a300dbf9bd63f58_647f2518_500" src="https://github.com/user-attachments/assets/14548612-36c9-40bd-85f6-5544f02a5d53" />
 
 
-hi :) I go by maple/zephyr ^_^ any prns are fine,, Im a middle school student and school is coming soon so I'll be rlly busy for some time
+hi :) I go by maple/zephyr ^_^ any prns are fine,, Im a middle school student and school is coming soon so I'll be rlly busy for most of the school year
 
 
 I have a beautiful partner don't flirt seriously w me
