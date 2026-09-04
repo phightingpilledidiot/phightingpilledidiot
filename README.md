@@ -11,7 +11,7 @@ I have a beautiful partner don't flirt seriously w me
 <img width="250" height="150" alt="tumblr_da3564b84c50fc8eba8fb74d1fdec2cd_941ec76b_250" src="https://github.com/user-attachments/assets/1602e282-27f2-490e-8e7b-38ce074c5dbb" />
 
 
-<img width="1200" height="300" alt="tumblr_531a6f7241251c0c162e387dd63656af_10f251ad_500" src="https://github.com/user-attachments/assets/d503cc54-c462-4a95-a2b5-8cc29e4e6447" />
+<img width="1200" height="400" alt="tumblr_531a6f7241251c0c162e387dd63656af_10f251ad_500" src="https://github.com/user-attachments/assets/d503cc54-c462-4a95-a2b5-8cc29e4e6447" />
 
 DNI >> if you support or tolerate darkshipping (proshipper) , pedophilia, zoophilia, necrophilia,, radqueer, or if you're generally weird and creepy
 
