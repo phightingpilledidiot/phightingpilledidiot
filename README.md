@@ -6,6 +6,8 @@ hi :) I go by maple/zephyr ^_^ any prns are fine,, Im a middle school student an
 
 I have a beautiful partner don't flirt seriously w me
 
+I like mooting people on tiktok, twt, anywhere I can have oomfs in! :D
+
 <img width="250" height="159" alt="tumblr_0ec6654eb13820df45cbfb986f453657_17d56961_250" src="https://github.com/user-attachments/assets/2ed7d72f-1ab0-4f9c-a6ad-a8f7c7f1ac64" />
 <img width="250" height="150" alt="tumblr_d95e08bbcac7cbb2509319b4839e7fa9_2b52e92e_250" src="https://github.com/user-attachments/assets/cc8afe8a-5e9d-4a2d-a4d8-e9c2edd425ec" />
 <img width="250" height="150" alt="tumblr_d5ed418c6de13a996ea699083dd2386d_8d440985_500" src="https://github.com/user-attachments/assets/e4fb7259-6460-474d-ac83-bb35ccb3f9e9" />
@@ -14,7 +16,7 @@ I have a beautiful partner don't flirt seriously w me
 
 <img width="1200" height="400" alt="tumblr_531a6f7241251c0c162e387dd63656af_10f251ad_500" src="https://github.com/user-attachments/assets/d503cc54-c462-4a95-a2b5-8cc29e4e6447" />
 
-DNI >> if you support or tolerate darkshipping (proshipper) , pedophilia, zoophilia, necrophilia,, radqueer, or if you're generally weird and creepy
+DNI >> if you support or tolerate darkshipping (proshipper) , pedophilia, zoophilia, necrophilia, or incest,, radqueer, or if you're generally weird and creepy
 
 <img width="250" height="150" alt="tumblr_40016b10469183ab04032c074d46b00f_38b5b9b8_250" src="https://github.com/user-attachments/assets/14da262c-5bb1-4e17-8a2b-f1d28e07879b" />
 
@@ -24,7 +26,7 @@ I SUCK AT COMMUNICATION UNLESS WITH FRIENDS OR CLOSE, I SUCK AT COMFORTING IM NO
 
 i have a chatbot addiction some days I dont talk much some days I want to talk if I'm silent and don't want to talk much w close friends please iwcare or caution >_>
 
-INTERACT >> SFAWTDE, ALST/ZOMST, PHIGHTING, VOCALOID, MLP, FORSAKEN (not the weird side of the fandom), REGRETEVATOR, UNDERTALE/DELTARUNE, WARRIOR CATS, WINGS OF FIRE,, <3
+INTERACT >> SFAWTDE, ALST/ZOMST, PHIGHTING, VOCALOID, MLP, FORSAKEN (not the weird side of the fandom), REGRETEVATOR, UNDERTALE/DELTARUNE, WARRIOR CATS, WINGS OF FIRE,, YOU ARENT REQUIRED TO BE IN THOSE TO INT IM FREE WITH ANY1<3
 
 <img width="232" height="72" alt="tumblr_1fce6d876267177b02ca0bf6a380f9d9_cebf22b7_250" src="https://github.com/user-attachments/assets/8b4ecfa7-4902-4a14-8754-29103ec7ea29" />
 
