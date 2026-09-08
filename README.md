@@ -3,6 +3,7 @@
 
 hi :) I go by maple/zephyr ^_^ any prns are fine,, Im a middle school student and school is coming soon so I'll be rlly busy for most of the school year
 
+I speak English and Arabic fluently but i might mix between the two if there's a word i cant/dont know how to translate I also speak a little bit of german but not enough for a full conversation
 
 I have a beautiful partner don't flirt seriously w me
 
