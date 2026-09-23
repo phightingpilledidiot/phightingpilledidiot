@@ -5,21 +5,5 @@
 
 
 
-minor - check straw for dni and byi list and pronouns.cc for alias/pronouns
-
-will be busy during school
-
-
-
-
-
-
 
 <img width="1280" height="511" alt="WhatsApp Image 2026-09-10 at 7 20 34 PM" src="https://github.com/user-attachments/assets/b43048fc-f356-49c0-88d1-78845bf065ce" />
-
-
-
-
-I KIN COIL ! ! ! ! ! ! I ship wtv unless its immoral and terrible
-
-I draw alot!! go ahead and request smt and i might draw it
